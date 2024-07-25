@@ -1,0 +1,1 @@
+# StrategicThinkingCA3
